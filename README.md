@@ -1,1 +1,0 @@
-# SYNTA-XR
